@@ -1,1 +1,1 @@
-
+Notre Engagement, Nos Normes, Responsabilités d'Application, Portée, Application, Directives d'Application et Attribution. La soumission devrait inclure ces éléments pour obtenir le maximum de points.
